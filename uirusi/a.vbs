@@ -1,0 +1,1 @@
+msgbox""ばなななあなななななな ウイルス感染 ooooooooooooooooooo"
